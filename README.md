@@ -1,2 +1,0 @@
-# ThanksforU
-Thanks 
